@@ -1,4 +1,4 @@
-# DataCamp Coupon Code 2025 | Claim 50% Discount Monthly & Yearly
+# DataCamp Coupon Code April 2025 | Claim 50% Discount
 
 I have curated all the active [Datacamp coupons](https://www.datacamp.com/), using which you can claim a 50% discount on Data science, AI skills, and other courses.
 
